@@ -29,7 +29,7 @@
 - 후원사 (현대 모비스, 로그프레소) 채용 홍보
 
 
-[외부인 참가 링크](https://docs.google.com/forms/d/1ljMJFznI6ktLZxaHMBykfXeekl2uZGsqGRAclfNwgEA/edit)
+[외부인 참가 링크](https://forms.gle/j1jUXheFwcoJjxFv6)
 
 
 (진행상황에 따라 일부 사항은 변경될 수 있습니다. 대회 끝나고 뒤풀이가 예정되어있습니다.)
